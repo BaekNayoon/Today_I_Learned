@@ -1,6 +1,7 @@
 - History class : Raphael died from having too much sex ಠ_ಠ
 - History class: Teenage Mutant Ninja Turtles are named after famous Renaissance artists
 - History class: King Henry the 8th had six wives (he banishes the first, divorces the second, beheads the third, the fourth died in childbirth, executes the fifth, and the sixth wife outlived him, making their 10 year-old son the next King... this is not an appreciation post, although it could be)
+- ^continued: Many of his wives were named Catherine, which makes me start to question John Green
 - Tech Theater: old man makeup and facial hair
 - Math class: Surprise test! Great... 
 - Senior's last day was today, while everyone else has another month (ﾉಠдಠ)ﾉ︵┻━┻
