@@ -7,4 +7,4 @@
 - Senior's last day was today, while everyone else has another month (ﾉಠдಠ)ﾉ︵┻━┻
 - Apparently some of my really small friends turned out to be seniors this whole time and asked me to sign their yearbook
 - My English teacher said "hi" to me in the hallway... teachers could do that? 
-- Korean School: Didn't learn anything, but we watched "Train to Busan", and now I'm obsessed with zombies ψ（｀Д´）ψ
+- Korean School: Didn't learn anything, but we watched "Train to Busan", and now I'm obsessed with zombies 
