@@ -12,3 +12,8 @@
 - ^continued: The librarians at my school are evil. They are worse zombies than in the movie. 
 - Tech Theater: Blood and gore makeup 
 - ^continued: Having a fake cut with fake blood dripping out of the side of my face did not exactly please any of my teachers... except my tech theater teacher...
+- Obvservation: The house across the street is moving out... to a house down two blocks? I have never met any of my neighbors
+- History class: The city of Lisbon met an earthquake, tsunami, and tornado on the same day, at the same time! It is now called "All Saints Day", since Portugal was the most religous at the time. But... yeah, there were close to no survivors. 
+- Game Design: Our very tall TA who has a beard was actually a high school student this whole time!!!!
+- Free Block: Crappy Anime Club Leader Eric does a bad job at everything, specifically comfort. 
+- 
