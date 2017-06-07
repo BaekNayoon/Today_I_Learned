@@ -8,3 +8,7 @@
 - Apparently some of my really small friends turned out to be seniors this whole time and asked me to sign their yearbook
 - My English teacher said "hi" to me in the hallway... teachers could do that? 
 - Korean School: Didn't learn anything, but we watched "Train to Busan", and now I'm obsessed with zombies 
+- Why did I ever think that showing 9 of my friends "Train to Busan" in the library was a good idea? 
+- ^continued: The librarians at my school are evil. They are worse zombies than in the movie. 
+- Tech Theater: Blood and gore makeup 
+- ^continued: Having a fake cut with fake blood dripping out of the side of my face did not exactly please any of my teachers... except my tech theater teacher...
