@@ -16,4 +16,5 @@
 - History class: The city of Lisbon met an earthquake, tsunami, and tornado on the same day, at the same time! It is now called "All Saints Day", since Portugal was the most religous at the time. But... yeah, there were close to no survivors. 
 - Game Design: Our very tall TA who has a beard was actually a high school student this whole time!!!!
 - Free Block: Crappy Anime Club Leader Eric does a bad job at everything, specifically comfort. 
-- 
+- Physics class: Egg drop. Went well. I'm the only one without a partner, but my project was successful which makes me more of a badass. 
+- History class: Group work. I panicked. 
