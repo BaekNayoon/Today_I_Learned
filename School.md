@@ -12,3 +12,4 @@
 - ^continued: The librarians at my school are evil. They are worse zombies than in the movie. 
 - Tech Theater: Blood and gore makeup 
 - ^continued: Having a fake cut with fake blood dripping out of the side of my face did not exactly please any of my teachers... except my tech theater teacher...
+<!-- I learned how to do this! -->
