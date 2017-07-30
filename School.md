@@ -19,3 +19,4 @@
 - Physics class: Egg drop. Went well. I'm the only one without a partner, but my project was successful which makes me more of a badass. 
 - History class: Group work. I panicked. 
 <!-- ( ͡⚆ ͜ʖ ͡⚆) -->
+<!-- dermatillomania -->
