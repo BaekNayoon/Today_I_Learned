@@ -20,3 +20,4 @@
 - History class: Group work. I panicked. 
 <!-- ( ͡⚆ ͜ʖ ͡⚆) -->
 <!-- dermatillomania -->
+- (not school, but still learned) Charloteville news is for some reason... debatable??? United State of America is not United anymore (T⌓T)
