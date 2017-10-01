@@ -24,3 +24,4 @@
 - Independent Reading: Book: Lies My Teachers Told Me: Helen Keller was a radical socialist, Woodrow Wilson was a racist white supremicist who held secret wars with Russia and parts of South America, and Betsy Ross didn't actually do shit. 
 - Chemistry: A candle... can burn! WOW! 
 - Cross Country: I heard two girls gossiping about how another girl gossiped about them? Aw fek i'm doing the same thing. 
+World History: French Revolution- the first person to die on the guillotine was the guy who made it
