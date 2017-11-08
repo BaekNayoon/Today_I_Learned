@@ -25,3 +25,6 @@
 - Chemistry: A candle... can burn! WOW! 
 - Cross Country: I heard two girls gossiping about how another girl gossiped about them? Aw fek i'm doing the same thing. 
 - World History: French Revolution- the first person to die on the guillotine was the guy who made it
+- World History: Haitian Revolution- they declared their own freedom from France and my textbook literally has one tiny little paragraph on it smh
+- World History: Latin American Revolution happened AFTER the Haitian Revolution. Timing. 
+- School: is killing me (⋟﹏⋞)
